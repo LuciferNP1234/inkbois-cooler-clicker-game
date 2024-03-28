@@ -15,5 +15,5 @@ This website is not created by me! It's create by InkBoi. I only modified the co
 InkBoi's Discord Username : inkboi
 Discord User ID : 853357088666288198
 
-My Discord Username : 94831035098713560853137932950613 
+My Discord Username : 69420_69420_69420_69420_69420._.
 My Discord User ID : 1097878487790002176
